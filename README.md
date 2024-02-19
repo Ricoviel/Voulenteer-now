@@ -7,5 +7,3 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
-
-* enrico juan carlos, [Linkedin](www.linkedin.com/in/enrico-juan-carlos-204484268).
